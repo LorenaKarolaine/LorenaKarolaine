@@ -4,4 +4,4 @@
 - Gosto de animes, mangás, manhwas, manhuas, light novels e etc.
 - 🏎️ Gosto de formula 1 e sou fã do Max Verstappen 🏎️
   
-!alt text!https://tenor.com/pt-BR/view/naruto-naruto-shippuden-hinata-smile-karano-kokoro-gif-22196413
+!alt text!https://raw.githubusercontent.com/LorenaKarolaine/LorenaKarolaine/refs/heads/main/naruto-naruto-shippuden.gif
